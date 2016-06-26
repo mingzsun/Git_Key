@@ -8,7 +8,3 @@ jkdjf
 djfldjfkjj
 djfldjfkjj
 jkdjfkdj
-jkdjf
-jkdjfkdj
-jkdjf
-why noe?
